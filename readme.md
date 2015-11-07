@@ -1,0 +1,1 @@
+# Cours du vendredi 6 novembre avec Lionel
